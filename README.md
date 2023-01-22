@@ -2,7 +2,7 @@
 
 ### Here's a little about who Wallace is :man: :rainbow_flag:
 
-I'm 33 and I was born in Rio de Janeiro, Brazil. I currently live in São Paulo, Brazil.
+I'm 34 and I was born in Rio de Janeiro, Brazil. I currently live in São Paulo, Brazil.
 I have an undergraduate degree in Information Systems from Faculdades Paraíso in São Gonçalo - Rio de Janeiro, 2010.
 
 ### What is the purpose of this ship? :dart:
